@@ -1,2 +1,2 @@
-# goseo
-G/O digital seo
+# the SEO Metaverse
+
